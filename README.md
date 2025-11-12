@@ -7,4 +7,4 @@
 - 💬 Ask me about organizing study workflows and tech learning paths
 - 📫 How to reach me: miemoona7@gmail.com
 - 😄 Pronouns: She/Her
--->
+  
